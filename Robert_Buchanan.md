@@ -1,0 +1,1 @@
+Hello im Robert people who know me call me Rob. I currently looking for a better job so im able to focus on code louisville more.
